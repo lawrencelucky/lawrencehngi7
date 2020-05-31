@@ -1,0 +1,1 @@
+Hi, I am Lawrence Lucky a frontend web developer in the making, and I am glad to be part of this internship
